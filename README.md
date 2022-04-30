@@ -1,4 +1,4 @@
-I love to create things, and have a passion for technology and programming. I'm an undergrad with SNHU as a Software Engineer, aswell as have professional experience as a Front-end Web Developer.
+I love creating, and have a passion for technology and programming. I'm an undergrad with SNHU as a Software Engineer, and have professional experience as a Web Developer.
 
 Family is one of my pillars in life, my beautiful wife, and son are my everything. I take great pride in everything I do, and always strive to put in the time and effort to make things stand out.
 
